@@ -37,5 +37,5 @@ Graduado em Química e em transição para a tecnologia através do curso de **A
 
 ### 📫 Vamos nos conectar?
 
-* 💼 **LinkedIn:** [linkedin.com/in/seu-perfil](https://www.linkedin.com/public-profile/settings/?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3B3wCXMRQYQPG9346Jlsv5qQ%3D%3D)
+* 💼 **LinkedIn:** [linkedin.com/in/eriklys-darlan-gomes-717a57285(https://www.linkedin.com/public-profile/settings/?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3B3wCXMRQYQPG9346Jlsv5qQ%3D%3D)
 * 📧 **E-mail:** eriklysdarlan@gmail.com
